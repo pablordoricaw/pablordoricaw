@@ -1,4 +1,4 @@
-### Hi there amigo 👋
+### Hello there 👋
 
 I'm a curious computer engineer in an 🗺️ adventure to understand how the tech that surrounds works and impacts our lives. 
 
